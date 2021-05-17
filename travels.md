@@ -1,0 +1,1 @@
+My favorite travel experience was a trip to Rocklands, South Africa. My husband, myself, and six of our closest friends went out there to climb and we got married while there. It was the most special experience of my lifetime and took place in one of the most beautiful places I've ever visited, simply majestic.
